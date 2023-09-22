@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @EuzinhaMaaah
+- 👀 atualmente estou aprendendo:pensamento computacional
+- 🌱 estou interessada em:aprender mais sobre pensamento computacional
+- 💞️ procuro colabora em....
+- 📫 como entrar em contato comigo: 43 996157766
